@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Designing
 - 🌱 I’m currently learning on edx and online platform
 - 💞️ I’m looking to collaborate with Big Giants
-- 📫 How to reach me instaid originweb.in
+- 📫 To reach me dm me on  insta @originweb.in
 
 <!---
 n4nick/n4nick is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
